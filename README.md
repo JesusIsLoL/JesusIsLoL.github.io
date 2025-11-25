@@ -1,2 +1,4 @@
 # JesusIsLoL.github.io
-My Website!
+You are playing lil wayne too loud!
+But... you are lil wayne.
+Ohhhh Yeahhhh!
